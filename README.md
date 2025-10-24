@@ -26,6 +26,11 @@
 
 ![WhatsApp Image 2025-10-24 at 16 13 14_590d547b](https://github.com/user-attachments/assets/52d73493-d5f6-41fc-9e6e-2d2941e044cc)
 
+
+![WhatsApp Image 2025-10-24 at 16 35 31_cf8803b9](https://github.com/user-attachments/assets/07f1028b-996b-433e-bc93-76b4942c7671)
+
+
+
 **THEORITICAL CALCULATION**
 
 ![WhatsApp Image 2025-10-24 at 16 13 14_c537cae3](https://github.com/user-attachments/assets/f3f3f3c0-d4f8-4877-8a7b-9c381718a3d3)
@@ -34,9 +39,26 @@
 ![WhatsApp Image 2025-10-24 at 16 13 15_2a3c4dec](https://github.com/user-attachments/assets/217e8999-de39-43a0-b045-76e18448ff79)
 
 
+
+
+![WhatsApp Image 2025-10-24 at 16 35 37_989c0c6f](https://github.com/user-attachments/assets/9ef4f199-307e-476a-b6a5-c16a7e2006c8)
+
+
+
+![WhatsApp Image 2025-10-24 at 16 35 37_d5d8f63e](https://github.com/user-attachments/assets/266fe0ad-3bbb-44f9-9a6e-1a9664a80208)
+
+
+
+
 **OBSERVATION**
 
 ![WhatsApp Image 2025-10-24 at 16 13 16_10cff2a0](https://github.com/user-attachments/assets/a4c576b5-c3d0-46c1-9734-890f913e1a78)
+
+
+
+![WhatsApp Image 2025-10-24 at 16 35 38_c9600606](https://github.com/user-attachments/assets/b079b2a4-7e2a-44ca-9a8f-ae63289595bf)
+
+
 
 
 
