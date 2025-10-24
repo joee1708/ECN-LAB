@@ -24,7 +24,13 @@
 
 **CIRCUIT DIAGRAM:**
 
+![WhatsApp Image 2025-10-24 at 16 13 11_1fa5f371](https://github.com/user-attachments/assets/7729758d-6451-42b3-8192-f7266649b40d)
 
+**TABULAR COLUMN:**
+![WhatsApp Image 2025-10-24 at 16 13 11_1fa5f371](https://github.com/user-attachments/assets/bbff6ba9-a32c-4d6e-a120-2e651d24651f)
+
+**CALCULATION;**
+![WhatsApp Image 2025-10-24 at 16 13 11_1fa5f371](https://github.com/user-attachments/assets/56fe397f-353e-44de-b541-77e660d86dff)
 
 
 
